@@ -2,6 +2,7 @@
 2. + [Telegram](t.me/ck1969)
    + [VK](https://vk.com/nck1969)
    + [Gmail](nikita.kern1969@gmail.com)
+   + +375292321657
 3. I'm student of BSUIR. I want became a programmer. My strenghts: reliability, persistence and love to learn smth new. 
 4. C++
    some java, css and html

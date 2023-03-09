@@ -4,7 +4,7 @@
 * Phone: +375(29)2321-16-57
 * E-mail: nck200069@gmail.com
 * Telegram: @nck1969
-  - [LinkedIn](https://www.linkedin.com/in/nikita-kern-2424b421b)
+* [LinkedIn](https://www.linkedin.com/in/nikita-kern-2424b421b)
 
 ## About Myself
     I studied at BSUIR and now work as AQA.
